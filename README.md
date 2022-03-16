@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Subhajit Dutta
 - 👀 I’m interested in Learning coding
 - 🌱 I’m currently a student of IT
-- 💞️ I’m looking to collaborate on ?? 
 - 📫 How to reach me my email- subhajitdutta1418@gmail.com
